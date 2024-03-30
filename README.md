@@ -1,5 +1,5 @@
    ### Olá, me chamo Ellyda!  👋
-- 👪 Sou casada, tenho uma filha.
+- 👪 Sou casada ,tenho uma filha.
 - 🐶 Tenho 5 auaus.
 - 🍫 Amo chocolate.
 - ☀️ Prefiro dias Ensolarados.
